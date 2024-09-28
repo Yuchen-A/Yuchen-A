@@ -18,6 +18,4 @@ Here are some ideas to get you started:
 
 I'm Yuchen 😄
 
-Embrace the Pace: Where Slow is Fast and Fast is Slow💪
-
 📫: chensss0816@gmail.com
